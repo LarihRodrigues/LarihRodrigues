@@ -1,0 +1,23 @@
+- Bom... meu nome é Larissa ✨
+- tenho 14 anos 💫
+- Gosto muito da aula de pensamento computacional
+- o nosso professor é o Patrick ( não sei se é assim que escreve kk)
+- nosso professor é muito engraçado e atencioso ✨
+- estudamos várias coisas muito interessante e legal
+- nossa primeira aula foi " passo a passo de como escovar os dentes" achei divertido esse dia
+- aprendemos também sobre "algoritmo de empréstimo de livro" achei interessante
+- depois fizemos um trabalho em dupla, foi bem divertido
+- Criamos uma conta no Scratch, achei legal e interessante foi uma das aulas que eu mais gostei ✨
+- Aprendemos sobre "Blocos de código Scratch", foi interessante esse dia
+- levamos atividade do Alura para fazer em casa, foi meio chato essa parte kk
+- fizemos 6 questões em sala de aula sobre o projeto do Scratch, foi interessante
+- Bom, isso tudo foi do 1°trimestre
+- No 2° trimestre, tivemos a maioria das aulas no laboratório, todos os alunos amam aulas no laboratório de informática
+- aprendemos sobre Operadores lógicos, foi legal essa aula
+- aprendemos como usar os operadores lógicos
+- fizemos alguns exercícios relacionados a isso
+- aprendemos também sobre códigos Javascript, essa foi uma das minhas aulas favoritas também
+- fizemos algumas atividades relacionadas a isso
+- aprendemos sobre código de calculadora no P5
+- Aprendemos muito sobre Github, e estamos aprendendo cada aula mais !!
+- tem aulas que são sem graça, mas a maioria delas são interessantes, legais e divertidas ✨
